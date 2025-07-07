@@ -14,6 +14,6 @@
 如果你在寻找一个安全、无广告、免费的日本AV观看平台，这里是理想选择。
 
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/df20250707/df04 ）</span>
 
 
